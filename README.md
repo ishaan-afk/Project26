@@ -1,1 +1,3 @@
-# Project26
+Hello people! 
+Today we are going to make a cake. I am not a very good chef so I can't make a very high-fi cake but I can make a simple choclate cake...
+And some tea would really go with a cake too. Right?
